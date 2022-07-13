@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Garytan007
-- 👀 I’m interested in ... tech staffing and recruiting 
-- 🌱 I’m currently learning ... United Kingdom 
+- 👀 I’m interested Finding telented developers and help them getting full time postions Globally
+- 🌱 I’m currently learning  
 - 💞️ I’m looking to collaborate on ...to help community 
 - 📫 How to reach me ... girishtanwar@gmail.com
 
